@@ -12,3 +12,4 @@ salama zalah
 
 in zan n ataotsika manaraka zao
 
+inona ary no tsy mampety anty le
