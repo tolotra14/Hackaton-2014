@@ -13,3 +13,5 @@ salama zalah
 in zan n ataotsika manaraka zao
 
 inona ary no tsy mampety anty le
+
+Aonaa? efa nety ve zalah a!
